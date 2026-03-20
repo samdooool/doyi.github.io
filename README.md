@@ -1,1 +1,1 @@
-# minsu1206.github.io
+# samdooool.github.io/doyi.github.io/
